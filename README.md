@@ -1,4 +1,4 @@
-# AngryPeopleNoFear
+# 愤怒的人民已不再恐惧
 
 编者按：
 
