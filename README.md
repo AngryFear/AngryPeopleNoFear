@@ -8,6 +8,8 @@
 
 关于许章润 [[1](https://zh.wikipedia.org/wiki/%E8%AE%B8%E7%AB%A0%E6%B6%A6)]. He was a law professor at Tsinghua University until he wrote some articles about the CCP leader in 2018. 以下这篇他的文章，思想深邃，文笔犀利尖刻，非常值得一读。2019新型冠状病毒起源于武汉，随后肆虐中华大地，已经有不少人看明白了问题的根源之所在，但是少有人能够写出如此高水平的文章。敬佩敬佩。
 
+Here is a English version of this essay[[2](http://www.chinafile.com/reporting-opinion/viewpoint/viral-alarm-when-fury-overcomes-fear)]
+
 
 
 ---
